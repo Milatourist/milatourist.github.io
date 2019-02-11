@@ -17,4 +17,4 @@
 https://vk.com/topic-132011237_38451875
 
 
-![Image alt](https://pp.userapi.com/c639719/v639719251/51030/IF4whBT_mYA.jpg)
+![Image alt](https://pp.userapi.com/c824500/v824500505/145d8b/XIihoTxXr6A.jpg)
