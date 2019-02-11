@@ -17,5 +17,4 @@
 https://vk.com/topic-132011237_38451875
 
 
-
-![Иллюстрация к проекту](https://vk.com/photo-132011237_456253622)
+![Image alt](https://pp.userapi.com/c639719/v639719251/51030/IF4whBT_mYA.jpg)
